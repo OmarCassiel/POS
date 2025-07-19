@@ -1,0 +1,1 @@
+<p>Redes sociales | Todos los derechos reservados | Politicas de privacidas | Terminos y condiciones</p>
